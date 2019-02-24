@@ -1,1 +1,0 @@
-# cynthiaorozco.github.io
